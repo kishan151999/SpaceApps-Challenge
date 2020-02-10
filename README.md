@@ -1,1 +1,0 @@
-# SpaceApps-Challenge
